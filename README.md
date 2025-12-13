@@ -41,6 +41,7 @@ all of my socials are in heree!
     <p> dni/tt/td ;; do not int / touch trigger / touch discomfort ;; i would sometimes put ts in my name, and yes is a total joke so feel free to troll me !! ^^ </p>
     <p> tc ;; touch comfort </p>
     <p> c+h ;; cuddle and hide </p>
+    <p> i love whenever someone c + h me,  </p>
   </div>
 </details>
 
