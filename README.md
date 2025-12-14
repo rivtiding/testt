@@ -20,6 +20,8 @@ Wikilius/Jacob/Igniter yume.... 👀👀
 
 " Why do we keep dying " SORRY 🤣🤣✌️✌️ /ref
 
+" I had found you, I had left you. I forgave you, I forgot you. You possesed me, You controlled me. Said you loved me, Said you'd kill me. "
+
 HOTTEA FAN 👀👀 ALERT ALERT 👀👀👀 ♨️☕ ( please dont attack me )
 
 <img width="300" height="100" alt="image" src="https://files.catbox.moe/s0hzqk.gif" />
@@ -118,6 +120,7 @@ all of my socials are in heree!
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/6/1/4/3/12343416_2829f.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/4/9/1/7/11997194_aa0e2.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/5/6/3/0/12160365_67f39.gif" />
+  <p> ────────────── . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ────────────── </p>
   <p> american ferryman x arnaud/scared french man ( i cant put some of the gifs i made, because its completely glitching :'( </p>
   <p> Majorbite/The last compliment ( Dopfer x Dracula ) </p>
   <p> Saltwater ( Barry x Jean ) </p>
@@ -133,10 +136,12 @@ all of my socials are in heree!
   <p> Berezina suppliers x 95th rifles sharpshooter </p>
   <p> Teabiscuit ( Unnamed Prussian Officer / Karl x Jean ) </p>
   <p> Hobo x Bubbles </p>
-  <p> oka lets just say that I ship everything in gnb, except corspe x alive person, Jean x Jacob ( I HC THEM AS FATHER AND SON!!! ), unnamed austrian soldier/trailer guy x Dopfer npc ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
+  <p> oka lets just say that I ship everything in gnb, except corspe x npc/character unless i really like the ship (for ex;; Cuirassier x Officer class) , Jean x Jacob ( I HC THEM AS FATHER AND SON!!! ), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
   <p>  </p>
   <p>  </p>
   <p> </p>
   </div>
 </details>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=default&show_offline=false&background_color=050624&interchange=false&profanity=false&bar_color=3f5597&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
