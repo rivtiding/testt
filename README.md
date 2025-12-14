@@ -39,7 +39,7 @@ all of my socials are in heree!
     <p> w2i ;; whisper to interact ( i am a very shy person, so i suggest you to speak up first ) </p>
     <p> iwc ;; interact with care/caution ( i dont rlly put it in my name unless im crying or draining the shi out of me, js a quick reminder that i vent like most of the time. js in the silence not to ppl tho ) </p>
     <p> dni/tt/td ;; do not int / touch trigger / touch discomfort // i would sometimes put ts in my name as a joke, so feel free to troll me lol </p>
-    <p> Ltm ;; listening to music ( i may watching your pones/ponies or want to c+h youu.uu...... 👀👀👀 im scared to c+h eeerrrraeeeearnjsdab ) </p>
+    <p> Ltm ;; listening to music ( i may be watching you or want to c+h youu.uu...... 👀👀👀 im scared to c+h eeerrrraeeeearnjsdab ) </p>
     <p> wy ;; watching youtube shi 💩💩💩 </p>
     <p> tc ;; touch comfort </p>
     <p> c+h ;; cuddle and hide </p>
