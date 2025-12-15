@@ -51,6 +51,7 @@ all of my socials are in heree!
     <p> please do not try to engage rp w me, even if you do i will js simply hide you for 15 mins or js simply ignore you. the reason im saying ts is because im not very good at rp at all. but I usually think you guys are very funny when rp'ing and i might try rp again one day </p>
     <p> you may see me roaming around the map, or js sitting at some spots that i mostly sat, I am usually offtab, but dw i often check every 6-7 minutes </p>
     <p> I love placing lanterns, and yes if you see a table full of lanterns at outside of the bakery seating spot, that was me. I usually do it whenever im bored and i hope this didnt offend you.. i js love lanternnss..s...ok... 🥺🥺🥺 </p>
+    <p> thank you whoever crown me, I'd really appreciate it.. ^^ and 👑👑👑👑👑👑👑👑👑👑👑 now 👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑 im 👑👑👑👑👑👑👑👑👑👑 gonna 👑👑👑👑👑👑👑👑👑👑👑👑👑 crown 👑👑👑👑👑👑👑👑👑👑👑👑you. 👑👑👑👑👑👑👑👑👑👑 cool 👑👑👑👑👑👑👑👑👑👑👑 right???? 🤣🤣🤣✌️✌️✌️✌️✌️  </p>
     <p> please aim to be nice whenever you want to have a conversation with me, if no then i wont be replying to your messages. I'm not very good at interacting since i have been a dry texter for years, and talking in an energetic way feels like im being forced../nm (ᵕ—ᴗ—) but im not rlly that mean, i can be very kind, joyful, and maybe cool i think.k.k.....ghulp. And if i accidentally said smth uncomfortable, please lmk because i dont rlly mean it. I js wanna fit in gng 😢😢😢😢 I'm also very slow to understand some stuff and I'll lyk whenever it went over my head (๑ᵔ⤙ᵔ๑) </p>
     <p> i am very active on ponytown, I'm online for around 2-15 hours. if i havent been on ponytown for a week nor a months, it means i have school/exams or on a huge hiatus.. Onlines on every weekend, holidays and maybe midnight, if i havent slept yet ofc </p>
     <p> if i ever follow you on here, i js wanna be friends with youu.... (⸝⸝◜ᴗ◝⸝⸝) </p>
@@ -128,7 +129,7 @@ all of my socials are in heree!
   <p> Dracula x Headless horseman </p>
   <p> Headless Horseman x Jacob </p>
   <p> Unnamed Prussian Officer / Karl x Dopfer </p>
-  <p> Bomber x/+ Igniter ( is either friends or ship ) </p>
+  <p> LanternExplosion aka Bomber x/+ Igniter ( is either friends or ship ) </p>
   <p> Zapper x/+ Cuirassier </p>
   <p> American ferryman x  Barry </p>
   <p> Enginner x Barry </p>
@@ -136,10 +137,10 @@ all of my socials are in heree!
   <p> Berezina suppliers x 95th rifles sharpshooter </p>
   <p> Teabiscuit ( Unnamed Prussian Officer / Karl x Jean ) </p>
   <p> Hobo x Bubbles </p>
-  <p> oka lets just say that I ship everything in gnb, except corspe x npc/character unless i really like the ship (for ex;; Cuirassier x Officer class) , Jean x Jacob ( I HC THEM AS FATHER AND SON!!! ), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
-  <p>  </p>
-  <p>  </p>
-  <p> </p>
+  <p> oka lets just say that I like any ships in gnb, except corspe x npc/character unless i really like the ship (for ex;; Cuirassier x Officer class) , Jean x Jacob ( I HC THEM AS FATHER AND SON!!! ), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
+  <p> you hate those ships?? thats okay! I respect your opinion, I dont have my rights to harrass people js because of a ship. Unless you take it too far, "g&b shippers ruining the fandom [insert edit dipshit]" son 😭😭😭😭😭😭😭 ok buddy, look there’s nothing wrong with shipping at all, it’s almost in every fandom. A cruel and “badass” game doesn’t always have to have a “badass” or “edgy sigma edit” type of fandom💔 and you totally stfu with your sexist ass twerking </p>
+  <p> and quick note, i LIKE/LOVE the ship. NOT "gnb ships i shipped.." please read carefully before throwing your thoughts at me.. except Hottea, Wikilius x AmericanFerryman, Saltwater, LanternExplosion, andddd idk i ships those people oka  </p>
+  <p> hate shippers? thats alright!!! I accept that! </p>
   </div>
 </details>
 
