@@ -14,6 +14,8 @@ Wikilius/Jacob/Igniter yume.... 👀👀
 
 (sometimes sharing and sometimes non-sharing. yes, i yumeship myself w igniter please dont smite me 💔💔)
 
+(I'm always sharing and there's a 25% chance that you might see me non-sharing w people!) 
+
 <img width="1918" height="400" alt="image" src="https://files.catbox.moe/ipbxqh.gif" />
 
 <h5 align="center"
