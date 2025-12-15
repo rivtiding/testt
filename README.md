@@ -47,7 +47,7 @@ all of my socials are in heree!
     <p> c+h ;; cuddle and hide </p>
     <p> i love whenever someone cuddles me, so js c+h freely whenever you wanted, because thats okay with me!! (˵ •̀ ᴗ - ˵ ) </p>
     <p> if you ever think im away, dont hesitate to w2i mate  </p>
-    <p> idk if there are ppl get mad of this, but if i left while you were c+h me. I AM VERY SORRYY!!! :,( my wifi sometimes suck, so thats why i disconnected T-T </p>
+    <p> idk if there are ppl get mad of this, but if i left while you were c+h me. I AM VERY SORRYY!!! :,( my wifi sometimes suck, so thats why i disconnected T-T or decided to hop off the game/computer for awhile.. </p>
     <p> please do not try to engage rp w me, even if you do i will js simply hide you for 15 mins or js simply ignore you. the reason im saying ts is because im not very good at rp at all. but I usually think you guys are very funny when rp'ing and i might try rp again one day </p>
     <p> you may see me roaming around the map, or js sitting at some spots that i mostly sat, I am usually offtab, but dw i often check every 6-7 minutes </p>
     <p> I love placing lanterns, and yes if you see a table full of lanterns at outside of the bakery seating spot, that was me. I usually do it whenever im bored and i hope this didnt offend you.. i js love lanternnss..s...ok... 🥺🥺🥺 </p>
@@ -145,7 +145,7 @@ all of my socials are in heree!
 
 ────────────── . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ──────────────
 
-(what i am listening to rn!!)
+(what i am listening to rn!! and if theres no bar showing above the album, it means im offline or js watching yt for awhile)
 
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=default&show_offline=false&background_color=050624&interchange=false&profanity=false&bar_color=3f5597&bar_color_cover=true)
 
