@@ -43,6 +43,8 @@ all of my socials are in heree!
 
 ( [<ins> ﹒ ︵ Linktree ︶︶˖﹟𖦹 </ins>](https://linktr.ee/karlgvuts) )
 
+( i might change this stupid plain ass repository to wikilius themed soon...not sure tho )
+
 ────────────── ( ˶ˆᗜˆ˵ ) ──────────────
   
 <details>
