@@ -67,7 +67,6 @@ all of my socials are in heree!
     <p> i am very active on ponytown, I'm online for around 2-18 hours. (dont worry, i do take a shower btw) if i havent been on ponytown for a week nor a months, it means i have school/exams or on a huge hiatus.. Onlines on every weekend, holidays and maybe midnight, if i havent slept yet ofc </p>
     <p> if you ever find me cool or interesting.. you can always send me a friend request! :')  </p>
     <p> anddd... if i ever follow you on here, i js really want to be friends with youu.... (⸝⸝◜ᴗ◝⸝⸝) </p>
-    <p> ( [<ins> doesnt forget to sign my ata ! </ins>](https://karlgvuts.atabook.org/) ) </p>
     <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/s1NjhxEvtAwAAAAd/gutsandblackpowder-g%26b.gif" />
   </div>
 </details>
