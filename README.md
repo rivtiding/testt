@@ -60,10 +60,10 @@ all of my socials are in heree!
     <p> if you ever think im away, dont hesitate to w2i mate  </p>
     <p> idk if there are ppl get mad of this, but if i left while you were c+h me. I AM VERY SORRYY!!! :,( my wifi sometimes suck, so thats why i disconnected T-T or decided to hop off the game/computer for awhile.. </p>
     <p> please do not try to engage rp w me, even if you do i will js simply hide you for 15 mins or js simply ignore you. the reason im saying ts is because im not very good at rp at all. but I usually think you guys are very funny when rp'ing and i might try rp again one day </p>
-    <p> you may see me roaming around the map, or js sitting at some spots that i mostly sat, I am usually offtab, but dw i often check every 6-7 minutes </p>
+    <p> you may see me roaming around the map, or js sitting at some areas that i mostly sat, I am usually offtab, but dw i often check every 6-7 minutes </p>
     <p> I love placing lanterns, and yes if you see a table full of lanterns at outside of the bakery seating spot, that was me. I usually do it whenever im bored and i hope this didnt offend you.. i js love lanternnss..s...ok... 🥺🥺🥺 </p>
-    <p> thank you whoever crown me, I'd really appreciate it.. ^^ and 👑👑👑👑👑👑👑👑👑👑👑 now 👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑 im 👑👑👑👑👑👑👑👑👑👑 gonna 👑👑👑👑👑👑👑👑👑👑👑👑👑 crown 👑👑👑👑👑👑👑👑👑👑👑👑you. 👑👑👑👑👑👑👑👑👑👑 cool 👑👑👑👑👑👑👑👑👑👑👑 right???? 🤣🤣🤣✌️✌️✌️✌️✌️  </p>
-    <p> please aim to be nice whenever you want to have a conversation with me, if no then i wont be replying to your messages. I'm not very good at interacting since i have been a dry texter for years, and talking in an energetic way feels like im being forced../nm (ᵕ—ᴗ—) but im not rlly that mean, i can be very kind, joyful, and maybe cool i think.k.k.....ghulp. And if i accidentally said smth uncomfortable, please lmk because i dont rlly mean it. I js wanna fit in gng 😢😢😢😢 I'm also very slow to understand some stuff and I'll lyk whenever it went over my head (๑ᵔ⤙ᵔ๑) </p>
+    <p> thank you whoever crown me, I'd really appreciate it.. ^^ </p>
+    <p> please aim to be nice whenever you want to have a conversation with me, if no then i wont be replying to your messages. I'm not very good at interacting since i have been a dry texter for years, and talking in an energetic way feels like im being forced../nm (ᵕ—ᴗ—) but im not rlly that rude, i can be very kind, joyful, and maybe cool i think.k.k.....ghulp. And if i accidentally said smth uncomfortable, please lmk because i dont rlly mean it. I js wanna fit in gng 😢😢😢😢 I'm also very slow to understand some stuff and I'll lyk whenever it went over my head (๑ᵔ⤙ᵔ๑) </p>
     <p> i am very active on ponytown, I'm online for around 2-18 hours. (dont worry, i do take a shower btw) if i havent been on ponytown for a week nor a months, it means i have school/exams or on a huge hiatus.. Onlines on every weekend, holidays and maybe midnight, if i havent slept yet ofc </p>
     <p> if you ever find me cool or interesting.. you can always send me a friend request! :')  </p>
     <p> anddd... if i ever follow you on here, i js really want to be friends with youu.... (⸝⸝◜ᴗ◝⸝⸝) </p>
@@ -127,6 +127,7 @@ all of my socials are in heree!
 <details>
   <summary><ins>some gnb ships i like/love...</ins></summary>
   <div align="center"> 
+  <p> I am  a rareshipper and a multishipper person btw </p>
   <img width="300" height="300" alt="image" src="https://media.tenor.com/U-w9yXzeVVYAAAAM/gnb-hottea.gif" />
   <img width="300" height="300" alt="image" src="https://files.catbox.moe/yqfb9u.gif" />
   <img width="300" height="300" alt="image" src="https://img1.picmix.com/output/pic/thumb/9/3/1/0/12380139_c3f9a.gif" />
@@ -136,6 +137,7 @@ all of my socials are in heree!
   <p> ────────────── . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ────────────── </p>
   <p> american ferryman x arnaud/scared french man ( i cant put some of the gifs i made, because its completely glitching :'( </p>
   <p> Majorbite/The last compliment ( Dopfer x Dracula ) </p>
+  <p> Karl x Engineer </p>
   <p> Saltwater ( Barry x Jean ) </p>
   <p> Dopfer x American ferryman </p>
   <p> Dracula x Headless horseman </p>
@@ -149,9 +151,9 @@ all of my socials are in heree!
   <p> Berezina suppliers x 95th rifles sharpshooter </p>
   <p> Teabiscuit ( Unnamed Prussian Officer / Karl x Jean ) </p>
   <p> Hobo x Bubbles </p>
-  <p> oka lets just say that I like any ships in gnb, except corspe x npc/character unless i really like the ship (for ex;; Cuirassier x Officer class), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
+  <p> oka lets just say that I like any ships in gnb, except corspe x npc/character (unless i really like the ship, for ex;; Cuirassier x Officer class), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
   <p> you hate those ships and shippers?? thats okay! I respect your opinion, I dont have my rights to harrass people js because of a ship nor a hater. Unless you take it too far, "g&b shippers ruining the fandom [insert edit dipshit]" son 😭😭😭😭😭😭😭 ok buddy, look there’s nothing wrong with shipping at all, it’s almost in every fandom. A cruel and “badass” game doesn’t always have to have a “badass” or “edgy sigma edit” type of fandom💔 and you should totally stfu with your sexist ass twerking </p>
-  <p> and do note that i LIKE/LOVE the ship. NOT "gnb ships i shipped.." please read carefully before throwing your thoughts at me.. except Hottea, Wikilius x AmericanFerryman, Saltwater, LanternExplosion, Bloodybarrel, Teaparty, andddd idk i ships those people oka  </p>
+  <p> and do note that i LIKE/LOVE the ship. NOT "gnb ships i shipped.." please read carefully before throwing your thoughts at me.. except Hottea, Wikilius x AmericanFerryman, Saltwater, LanternExplosion, Bloodybarrel, Peanutbread, Teaparty, andddd idk i ships those people oka  </p>
   <img width="300" height="400" alt="image" src="https://files.catbox.moe/cjarz0.png" />
   </div>
 </details>
