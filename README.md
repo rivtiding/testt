@@ -24,7 +24,14 @@ Wikilius yume.... 👀👀
 
 " Why do we keep dying " SORRY 🤣🤣✌️✌️ /ref
 
-" I had found you, I had left you. I forgave you, I forgot you. You possesed me, You controlled me. Said you loved me, Said you'd kill me. "
+" I hear Jerusalem bells a-ringin',
+Roman Cavalry choirs are singin'.
+Be my mirror, my sword and shield
+, my missionaries in a foreign field
+for some reason I can't explain.
+I know Saint Peter won't call my name.
+Never an honest word,
+but that was when I ruled the world. "
 
 HOTTEA FAN 👀👀 ALERT ALERT 👀👀👀 ♨️☕ ( please dont attack me )
 
@@ -143,7 +150,7 @@ all of my socials are in heree!
   <p> Berezina suppliers x 95th rifles sharpshooter </p>
   <p> Teabiscuit ( Unnamed Prussian Officer / Karl x Jean ) </p>
   <p> Hobo x Bubbles </p>
-  <p> oka lets just say that I like any ships in gnb, except corspe x npc/character unless i really like the ship (for ex;; Cuirassier x Officer class) , Jean x Jacob ( I HC THEM AS FATHER AND SON!!! ), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
+  <p> oka lets just say that I like any ships in gnb, except corspe x npc/character unless i really like the ship (for ex;; Cuirassier x Officer class), unnamed austrian soldier/trailer guy x Dopfer ( hc them as brothers.. ), npc x historical figure ( for ex;; Blucher x *insert any npc* ) ts includes Karl x Blucher too.  </p>
   <p> you hate those ships and shippers?? thats okay! I respect your opinion, I dont have my rights to harrass people js because of a ship nor a hater. Unless you take it too far, "g&b shippers ruining the fandom [insert edit dipshit]" son 😭😭😭😭😭😭😭 ok buddy, look there’s nothing wrong with shipping at all, it’s almost in every fandom. A cruel and “badass” game doesn’t always have to have a “badass” or “edgy sigma edit” type of fandom💔 and you should totally stfu with your sexist ass twerking </p>
   <p> and do note that i LIKE/LOVE the ship. NOT "gnb ships i shipped.." please read carefully before throwing your thoughts at me.. except Hottea, Wikilius x AmericanFerryman, Saltwater, LanternExplosion, Bloodybarrel, Teaparty, andddd idk i ships those people oka  </p>
   <img width="300" height="400" alt="image" src="https://files.catbox.moe/cjarz0.png" />
