@@ -62,7 +62,7 @@ all of my socials are in heree!
     <p> c+h ;; cuddle and hide </p>
     <p> i love whenever someone cuddles me, so js c+h freely whenever you wanted, because thats okay with me!! (˵ •̀ ᴗ - ˵ ) </p>
     <p> if you ever think im away, dont hesitate to w2i mate  </p>
-    <p> idk if there are ppl get mad of this, but if i left while you were c+h me. I AM VERY SORRYY!!! :,( my wifi sometimes suck, so thats why i disconnected T-T or decided to hop off the game/computer for awhile.. </p>
+    <p> idk if there are ppl get mad or upset of this, but if i left while you were c+h me. I AM VERY SORRYY!!! :,( my wifi sometimes suck, so thats why i disconnected T-T or decided to hop off the game/computer for awhile..  </p>
     <p> please do not try to engage rp w me, even if you do i will js simply hide you for 15 mins or js simply ignore you. the reason im saying ts is because im not very good at rp at all. but I usually think you guys are very funny when rp'ing and i might try rp again one day </p>
     <p> you may see me roaming around the map, or js sitting at some areas that i mostly sat, I am usually offtab, but dw i often check every 6-7 minutes </p>
     <p> I love placing lanterns, and yes if you see a table full of lanterns at outside of the bakery seating spot, that was me. I usually do it whenever im bored and i hope this didnt offend you.. i js love lanternnss..s...ok... 🥺🥺🥺 </p>
