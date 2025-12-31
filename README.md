@@ -2,9 +2,11 @@
   
   ![](https://komarev.com/ghpvc/?username=karlgvuts&color=6e1c14&amp;label=view+count)
 
-  <img width="300" height="100" alt="image" src="https://files.catbox.moe/swd0ms.gif" />
+  <img width="300" height="300" alt="image" src="https://files.catbox.moe/7w0sny.jpg" />
   
-the same person who made the gnb fandom area btw 😂😂😂✌️✌️✌️✌️/silly
+ THANK YOU BSF FOR DRAWING A GENDERBEND OF MY OC AND HER YUMESHIP 👀👀
+ 
+ (censored some of the text because is my real age and name!!)
   
 </div>
 
