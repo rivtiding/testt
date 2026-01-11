@@ -49,7 +49,7 @@
 
   Underlined words are clickable
 
-some short introduction without needing to go to my strawpage (i think)
+short introduction yayayyayyy (i think)
 
 <details>
   <summary><ins> <img width="20" height="20" alt="image" src="https://files.catbox.moe/wxnswa.gif" /> Pony town </ins></summary>
