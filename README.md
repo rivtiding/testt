@@ -23,7 +23,7 @@
 
 <div align="center">
 
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Sansita&size=25&duration=3000&pause=10&color=762F34&center=true&width=435&height=35&lines=%22+Sugar+don't+you+forget+me%2C;I'm+only+asking.;Won't+you+take+me+with+you%3F;I'm+all+alone.;Sugar+don't+you+forget+me%2C;I'm+only+asking.;Please+just+take+me+with+you%2C;I'm+all+alone.+%22)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Sansita&size=25&duration=3000&pause=10&color=762F34&center=true&width=435&height=35&lines=%22+Pain%2C+pain%2C+go+away;It%E2%80%99s+a+little+spell+I+cast+on+you;Scary+stuff%2C+hard+stuff%2C+go+away;A+band+aid+made+out+of+kind+words;Pain%2C+pain%2C+go+away;I%E2%80%99ll+hug+you+tightly+with+pure+white+cotton;Tears+and+sickness%2C+go+away;I%E2%80%99ll+heal+you+up;Don%E2%80%99t+rely+on+anyone+but+me+%22)](https://git.io/typing-svg)
 
 <div align="center">
 
@@ -88,7 +88,7 @@ short introduction yayayyayyy (i think)
   <summary><ins>  <img width="20" height="20" alt="image" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/brown/250" /> About me !! </ins></summary>
   <div align="center"> 
   <p> 1st january 🍰🍰 !! C:
-  <p> I like learning about history, comforting people, coding, cooking, some random satire stuff, and drawing on people's strawpage, if I weren't lazy enough ofc.. I cherish and have deep hatred towards Wikilius.. („• ֊ •„) I often sleeps like most of the time cuz i am a tiring person.. im the type who LOVES rareshipping and multishipping yay!! i enjoy every gnb ships, except the darkship ones. my top ones are hottea, saltwater, ameferry x wikilius, teaparty, peanutbread, bloodytea, and dopcula. I am a bread and tea enjoyer yayyyayyy!!!!!! 
+  <p> I like learning about history, comforting people, coding, cooking, some random satire stuff, and drawing on people's strawpage, if I weren't lazy enough ofc.. I cherish and have deep hatred towards Wikilius.. („• ֊ •„) I often sleeps like most of the time cuz i am a tiring person.. im the type who LOVES rareshipping and multishipping yay!! i enjoy every gnb ships, except the darkship ones. my top ones are teabiscuit, hottea, saltwater, ameferry x wikilius, teaparty, peanutbread, bloodytea, and dopcula. I am a bread and tea enjoyer yayyyayyy!!!!!! 
 
 I LOVE making new friends. please dont be afraid to interact with me, because i am also very shy too... I don't bite, i promise!! i am super duper lonely cuz most of my friends have different timezones than me 😢😢 Please ask first if you want to be moots on ttk, unless i  followed you first LOL. I love being supportive and nice all the time, it makes me feel so much better. Although i can be a little bit rude, only as a joke LMFAO, im just like that way hehe !! I am a multiyume and fyi, other of my f/o's are hypersharing except wikilius... very very selective sharing on wikilius!! I only share with my moots, close friends, or people that I'd love to share with. Non-sharing wikilius yumes block me NOW!!!!/nm ( is there even one?? ) i dont really mind wikilius fictionkins at all! js dont be like that one pomni fictkin smh </p>
     <p> ( My other [<ins> socials</ins>](https://linktr.ee/karlgvuts) if ya want ^_^ ) </p>
