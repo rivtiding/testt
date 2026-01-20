@@ -14,7 +14,7 @@
 
 <h4 align="center"
 
-( Mind [<ins> signing my ata?.. </ins>](https://karlgvuts.atabook.org/) I would really appreciate it!!!!! ^_^ )
+( my granny ask you guys to [<ins> sign my ata </ins>](https://karlgvuts.atabook.org/)  or else she'll kidnap you and haunt you in her home )
 
 
 <h3 align="center"
