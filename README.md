@@ -14,7 +14,7 @@
 
 <h4 align="center"
 
-( my granny ask you guys to [<ins> sign my ata </ins>](https://karlgvuts.atabook.org/)  or else she'll kidnap you and haunt you in her home )
+( [<ins> ata </ins>](https://karlgvuts.atabook.org/) - [<ins> strawpage </ins>](https://karlgvuts.straw.page) - my other [<ins> socials</ins>](https://linktr.ee/karlgvuts) if ya want ^_^ )
 
 
 <h3 align="center"
@@ -76,7 +76,6 @@ short introduction yayayyayyy (i think)
     <p> you may see me roaming around the map, or js sitting at some areas that i mostly sat, I am usually offtab, but dw i often check every 4-12 minutes </p>
     <p> I love placing some random items, and yes if you see a table full of random items at outside bakery, that was me. I usually do it whenever im bored and i hope this didnt offend you.. </p>
     <p> i unfriend people who are offline over 250+ days </p>
-    <p> if i put "asleep 💤" in my name, it's a sign that i have to get off real soon. Not actually asleep sadly, but sometimes i am asleep behind the screen 💔 </p>
     <p> i sometimes forgot that i have "nv" in my name, and if i ever communicate with you while having it, js dont mind it because im slow </p>
     <p> i am very active on ponytown, I'm online for around 2-18 hours. (dont worry, i do take a shower btw) if i havent been on ponytown for a week nor a months, it means i have school/exams or on a huge hiatus.. Onlines on every weekened, holidays and maybe midnight, if i havent slept yet ofc... If you see me being online on weekdays, thats just me doing hw or drawing if my dad let me play the computer ^^ </p>
     <p> please ask first or interact with me first if you wanna be friends with me on pony town.. </p>
@@ -92,7 +91,6 @@ short introduction yayayyayyy (i think)
   <p> I like learning about history, comforting people, coding, cooking, some random satire stuff, and drawing on people's strawpage, if I weren't lazy enough ofc.. I cherish and have deep hatred towards Wikilius.. („• ֊ •„) I often sleeps like most of the time cuz i am a tiring person.. I love signing people's atabook !! if I havent sign your ata yet, you can tell me in my ata!!! 💝💝 im the type who LOVES rareshipping and multishipping yay!! i enjoy every gnb ships, except the darkship ones. my top ones are teabiscuit, hottea, saltwater, ameferry x wikilius, teaparty, peanutbread, bloodytea, and dopcula. I am a bread and tea enjoyer yayyyayyy!!!!!! 
 
 I LOVE making new friends. please dont be afraid to interact with me, because i am also very shy too... I don't bite, i promise!! i am super duper lonely cuz most of my friends have different timezones than me 😢😢 Please ask first if you want to be moots on ttk, unless i  followed you first LOL. I love being supportive and nice all the time, it makes me feel so much better. Although i can be a little bit rude, only as a joke LMFAO, im just like that way hehe !! I am a multiyume and fyi, other of my f/o's are hypersharing except wikilius... very very selective sharing on wikilius!! I only share with my moots, close friends, or people that I'd love to share with. Non-sharing wikilius yumes block me NOW!!!!/nm ( is there even one?? ) i dont really mind wikilius fictionkins at all! js dont be like that one pomni fictkin smh </p>
-    <p> ( My other [<ins> socials</ins>](https://linktr.ee/karlgvuts) if ya want ^_^ ) </p>
    <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/QNWwC3R_fCsAAAAd/guts-and-blackpowder-danish.gif" />
   </div>
 </details>
@@ -131,7 +129,7 @@ I listen to aggressive jumpstyle, breakcore, hard rock, electronic, hardcore, Vo
   <summary><ins>  <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/84f06221bd523a07c364463c7c6993cf/db7ce6708c01e3ab-51/s75x75_c1/540b6dd0118fe384c4e4f9af79fc0c2d22e225a2.gifv" /> Interests !! </ins></summary>
   <div align="center"> 
   <p> In order of favourite! + main interests !!  </p>
-  <p> Guts & Blackpowder / Lexington & Concord / Centaura / Hetalia / Countryhumans / Flood Escape 2 / Minecraft / Dead Ahead / Napoleonic wars / Blood Debt / Blood & Iron / Islands ( Roblox ) / Team fortress 2 / Pretty Blood / FNF ( impostor v4 and skyverse ) / Bee Swarm Simulator ( I'm a newbie ouughhg.. ) / South park / Flex your Weather / Vocaloid </p> 
+  <p> Guts & Blackpowder / Lexington & Concord / Centaura / Hetalia / Countryhumans / Flood Escape 2 / Minecraft / Dead Ahead / Napoleonic wars / Blood Debt / Blood & Iron / Islands ( Roblox ) / Team fortress 2 / flamingo albert (and his friends) / FNF ( impostor v4 and skyverse ) / Vocaloid </p> 
     <img width="300" height="300" alt="image" src="https://media.tenor.com/BW1oKIjC9qQAAAAM/barry-roblox.gif" />
   </div>
 </details>
@@ -165,7 +163,7 @@ I listen to aggressive jumpstyle, breakcore, hard rock, electronic, hardcore, Vo
 
 <img align="center" width="1900" height="1900" alt="image" src="https://files.catbox.moe/mkzbzy.png" />
 
-### ${\textsf{\color{#73393A} " Look at that man over there, son. He's afraid of what he'll find. Look into his eyes. " }}$
+### ${\textsf{\color{#73393A} " Oh, in a blink, gone, blink, gone. 놓칠 수 없어, blink and gone. The clock goes tick-tock, tick-tock " }}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
