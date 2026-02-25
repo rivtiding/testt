@@ -163,7 +163,7 @@ I listen to aggressive jumpstyle, breakcore, hard rock, electronic, hardcore, Vo
 
 <img align="center" width="1900" height="1900" alt="image" src="https://files.catbox.moe/mkzbzy.png" />
 
-### ${\textsf{\color{#73393A} " Oh, in a blink, gone, blink, gone. 놓칠 수 없어, blink and gone. The clock goes tick-tock, tick-tock " }}$
+### ${\textsf{\color{#73393A} " From the sea to the river palestine will be FREE!!!! " }}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315mlshbpx72m2hp67w6niqg3bnm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
